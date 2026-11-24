@@ -1,0 +1,1 @@
+Of every task I automated, the off-switch was the one they'd never let me touch. So this is the first thing I've ever done by hand.
